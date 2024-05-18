@@ -21,6 +21,7 @@
 
 - 那么不妨订阅一下我的频道
 - 视频号 [B站](https://space.bilibili.com/477057405)
+- 游戏号 [Steam](https://steamcommunity.com/profiles/76561199308961995/)
 
 ### 我会使用哪些工具?
 
